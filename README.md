@@ -1,3 +1,7 @@
+
+![image_2024-10-23_14-47-18](https://github.com/user-attachments/assets/896c8661-eaad-47e7-ad2d-e8c7328c3e7f)
+
+
 # Data-Analyst
 <br><br>
 Data Analyst Learning Plan in 2024<br><br>
